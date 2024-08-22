@@ -1,1 +1,1 @@
-# richliferp
+Rich Life RP
